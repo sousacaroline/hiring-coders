@@ -1,0 +1,1 @@
+O curso é fantástico, ansiosa pelas próximas aulas <3
